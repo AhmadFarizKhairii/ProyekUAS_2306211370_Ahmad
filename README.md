@@ -1,1 +1,0 @@
-# ProyekUAS_2306211370_Ahmad
